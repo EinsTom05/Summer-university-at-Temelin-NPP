@@ -1,1 +1,1 @@
-# Summer-university-at-Temelin-NPP
+# Summer university at Temelin NPP
